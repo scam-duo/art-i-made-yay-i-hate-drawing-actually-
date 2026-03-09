@@ -1,2 +1,3 @@
-# art-i-made-yay-i-hate-drawing-actually-
-𝓹𝓾𝓬𝓴𝓮𝓻 𝓾𝓹 𝓫𝓸𝔂𝓱𝓸𝓶𝓲𝓮
+mostly doodles, never a finished project 
+
+<img width="2000" height="2000" alt="Image" src="https://github.com/user-attachments/assets/f4ca541f-1e34-4de0-a92f-d3a45dd0ab7d" />
